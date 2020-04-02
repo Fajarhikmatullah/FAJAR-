@@ -1,2 +1,0 @@
-# FAJAR-
-Ini Websiteku
